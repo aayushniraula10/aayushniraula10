@@ -1,5 +1,5 @@
 -  Hi, I’m @aayushniraula10
--  I’m interested in Web Developing, Fivem Developing.
+-  I am a Fivem Developer and Web Developer .
 -  To reach me ...You Can Dm me On Discord aayushniraula0001
 
 <!---
